@@ -1,2 +1,1 @@
-# Participantes del coloquio de dygi
-LOS Participantes
+# Coloquio de Estudios Asiáticos de la Licenciatura en Desarrollo y Gestión Interculturales
